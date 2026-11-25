@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：国内电信中转与AWS直连备用，按节点权限、设备及赠量分档。**
 >
-> 👉 **[官网注册](https://invite.eleven.observer/#/register?code=tnOXkma3)** · 建议从 Light轻量 的短周期开始，先核对客户端和常用节点。
+> 👉 **[官网注册](https://invite.eleven.observer/#/register?code=qBWn9Mrm)** · 建议从 Light轻量 的短周期开始，先核对客户端和常用节点。
 >
 
 >
@@ -66,7 +66,7 @@
 
 ## 注册
 
-👉 **[前往Nerwo奶瓶注册页面](https://invite.eleven.observer/#/register?code=tnOXkma3)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
+👉 **[前往Nerwo奶瓶注册页面](https://invite.eleven.observer/#/register?code=qBWn9Mrm)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
 
 ## 更新
 
